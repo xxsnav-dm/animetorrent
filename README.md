@@ -4,7 +4,7 @@
 AnimeTorrents 是一个专注于日本动漫内容的私人 BitTorrent 网站。它拥有庞大的动漫资源库，涵盖动漫电影、动漫电视剧、OVA（原创视频动画）、漫画和轻小说等多种类型。该网站提供多种高质量的资源，包括 DVDRIP、BDRip、蓝光和高清（720p/1080p）等格式。AnimeTorrents 每月大约有 45 万页面浏览量，用户无需注册即可访问和下载动漫内容，但如果想使用论坛讨论和 IRC 聊天等功能，则需要注册账户。
 
 <p><strong>一键访问：</strong><a href="https://www.xxsnav.com/sites/15928.html" target="_blank" ><strong>AnimeTorrents最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://www.xxsnav.com/favorites/dongmanziyuan" target="_blank" ><strong>动漫资源</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://dongmandaohang.sodanav.com" target="_blank" ><strong>动漫网站大全</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank" ><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 
 ### 功能特点
